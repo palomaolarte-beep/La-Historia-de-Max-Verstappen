@@ -1,2 +1,8 @@
 # La-Historia-de-Max-Verstappen
 Max Verstappen no es solo un piloto de formula 1, nacido en Belgica, el tetracampeon del mundo ha demostrado ser uno de los mejores de su tiempo en el automovilismo, pero su vida no fue la mejor.
+Max Emilian Verstappen nació en Hasselt, Bélgica, el 30 de septiembre de 1997. Hijo de la piloto belga de automovilismo Sophie-Marie Kumpen y del ex piloto de Fórmula 1 neerlandés Jos Verstappen.
+Verstappen heredó la pasión del automovilismo de sus progenitores y rápidamente comenzó a competir en Kart, siendo verdaderamente competitivo. Durante su adolescencia tomó la decisión de centrarse totalmente en el mundo del Karting, marchándose a vivir con su padre a los Países Bajos.
+Sus éxitos en el Karting fueron continuos, venciendo a los mejores del mundo y compitiendo en categorías reservadas a pilotos de más edad. En su última temporada en Karting se proclamó campeón de numeroso eventos mundiales tanto en KF, como en KZ1 o KZ2.
+Antes del comienzo de la temporada, Max participó en la Florida Winter Series, un evento de pretemporada organizado entre Ferrari y Prema, donde también estaban Lance Stroll o Nicholas Latifi. Verstappen no tardó en mostrar de lo que era capaz, aunque lo mejor estaba por llegar.
+
+No hubo ni que esperar un fin de semana para que Verstappen dejara su impronta. No en forma de resultados o puntos, pero sí con una velocidad endiablada ante pilotos más veteranos. Tras lograr seis victorias consecutivas entre Spa-Francorchamps y Norisring definitivamente captó la atención internacional, pegándose todos los equipos de Fórmula 1 por sus servicios.
